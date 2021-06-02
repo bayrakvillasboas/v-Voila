@@ -5,4 +5,4 @@ I'm Edward
 
 - 🔭 I’m currently working on Game systems
 
-- 📫 How to reach me:Edward"#8862 in Discord.
+- 📫 How to reach me: ibherzl#8862 in Discord.
