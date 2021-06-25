@@ -3,6 +3,6 @@ I'm Edward
 
 - 👨‍💻Programming languages i know mainly c and python.
 
-- 🔭 I’m currently working on Game systems
+- 🔭I'm not working on anything right now.
 
-- 📫 How to reach me: ibherzl#8862 in Discord.
+- 📫 How to reach me:Discord and Skype.
